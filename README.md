@@ -33,11 +33,6 @@ Na **Grow Technology**, nossa missão é criar **sites e aplicativos** modernos,
 
 ---
 
-## Portfólio
-
-
----
-
 ## Entre em contato
 
 Tem um projeto ou ideia para criar um site ou aplicativo?  
